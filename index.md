@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Turn on, tune in, drop out!
 
-I'm glad you are here. I plan to talk about ...
+The content of this blog is the result of careful research and musical culture.
+Have fun.
